@@ -15,6 +15,15 @@
 
 ***And later came flags***
 
+* The study of flags is called vexillology. I was introduced to this funny word in 2014 when I was searching the internet. Like most of people still to this day, I had no idea such a word existed. And so it made me want to research more. I started looking into the symbolism of each country flag. I learned that the most common colours on flags are red, white and blue. Red symbolizes the blood that was spilled during a certain countries revolution, blue symbolizes the waters and white symbolizing peace. Perhaps these colours are telling us a perception of how what we want for the world. Peace and nature, while valuing our struggles in history. 
+
+***My personal flag***
+
+* Here is an example of my case study. The work is a personal flag that I created during my second semester at my graphic design school. The task was to create a unique selfie that would describe our personality so I created my own personal flag that’s hanging on a flag pole in the sky. The colours yellow and black represent optimism and pessimism. In the middle of the flag is a green eye representing the colours of my eyes. The two triangles represent the different views I take to seeing graphic design.The triangle on the left side is a simple triangle in blue which is my personal favourite colour. On the right side is a more complex triangle using different colours. The whole composition symbolizes how you can make creative ideas from simple things by visualising the idea through your own personal vision with your eyes and turn the idea into something new and unique.
+
+***Intentions***
+
+* When I was making my flag, I tr
 
 
 
