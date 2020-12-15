@@ -11,7 +11,7 @@
 
 ***Then came the internet...***
 
-* So I searched on the internet and started to learn more about a certain country's history and culture. Not in full detail, but enough to get an idea on how a country functions and what are the main characteristics of it. But then I saw their flags. Before that, I've only seen flags as simple squares with some random shapes on them that are being represented with a piece of cloth. But the truth is, they're something more. There's one thing that a flag and a map have in common. And that is, that they both represent a country using symbols bordered by a rectanglurar shape, although in different ways. They're both represent a country in a certain visual style and they both include an information about a country. The information describes the country in a simple minimalist form. 
+* So I searched on the internet and started to learn more about a certain country's history and culture. Not in full detail, but enough to get an idea on how a country functions and what are the main characteristics of it. But then I saw their flags. Before that, I've only seen flags as simple squares with some random shapes on them that are being represented with a piece of cloth. But the truth is, they're something more. There's one thing that a flag and a map have in common. And that is, that they both represent a country using symbols bordered by a rectanglurar shape, although in different ways. They both represent a country in a certain visual style and they both include an information about a country. The information describes the country in a simple minimalist form. 
 
 ***And later came flags***
 
@@ -21,7 +21,7 @@
 
 * Here is an example of my case study. The work is a personal flag that I created during my second semester at my graphic design school. The task was to create a unique selfie that would describe our personality so I created my own personal flag that’s hanging on a flag pole in the sky. The colours yellow and black represent optimism and pessimism. In the middle of the flag is a green eye representing the colours of my eyes. The two triangles represent the different views I take to seeing graphic design.The triangle on the left side is a simple triangle in blue which is my personal favourite colour. On the right side is a more complex triangle using different colours. The whole composition symbolizes how you can make creative ideas from simple things by visualising the idea through your own personal vision with your eyes and turn the idea into something new and unique.
 
-***Intentions***
+***5 rules of flag design***
 
 * When I was making my flag, I tried to keep things clear and simple. Simplicity is key in the process of creating in graphic design. You want to make sure the stuff you make is understandable whether it's in a small or big format. The same rules you know from graphic design can be applied to flag design as well. The 5 rules of flag design are: Keep it simple. Use Meaningful Symbolism. Use 2 or 3 Basic Colors. No Lettering or Seals. Be Distinctive or Be Related. All these rules corelate with graphic and flag design. And so I started to use these rules in my graphic work. 
 
@@ -29,9 +29,11 @@
 
 * In 2019 I made a logo for a tourist ogranization called Kutnohorsko-Kolínsko-Čáslavsko. On the logo you can see three symbols representing the three small Czech cities that encompass the tourist region. Each symbol is a unique characterization of the city. Kolín is symbolized by a stylized crossroads standing for it's nickname, Kutná Hora is symbolized with a stylized axe standing for it’s famous silver mining in Medieval times and Čáslav is represented by a stylized historical gate standing for it's Medieval gate. All of these symbols could be used separately as it's own standing thing. And that's how I started to project my knowledge of symbolism into graphic design. 
 
-***Conclusion***
+***My bussines card***
 
-* There are many other unique versions of flags that you can use in your design. For example,  each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and turn incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! 
+* There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and turn incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you want to talk, just email me. 
+
+***The End***
 
 
 
