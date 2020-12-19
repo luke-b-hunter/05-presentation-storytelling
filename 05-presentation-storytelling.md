@@ -27,7 +27,7 @@
 
 ***Flag redesign for the state of Mississippi***
 
-* Here is an example of one of my flag designs. It is a flag redesign for the state of Mississippi. In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. I decided to do my own take at a flag redesign. I tried to keep it as simple as possible while maintaing all the traditional colours of the previous state flag and adding a possible symbolic replacement for the Confederate battle flag. The lettering had to be added since one of the rules of the competition was to include the phrase "In god we trust" in our designs. 
+* Here is an example of one of my flag designs. It is a flag redesign for the state of Mississippi. In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. I decided to do my own take at a flag redesign. I tried to keep it as simple as possible while maintaing all the traditional colours of the previous state flag and adding a possible symbolic replacement for the Confederate battle flag. The lettering had to be added since one of the rules of the competition was to include the phrase "In god we trust" in our designs. The symbol is made up of a stylized magnolia flower reffering to Mississippi's common nickname as the Magnolia state. The 20 stars represent Mississippi's status as the 20th state to join the Union. Around the symbol is a blue line representing the Mississippi river. 
 
 ***Logo for a tourist region***
 
