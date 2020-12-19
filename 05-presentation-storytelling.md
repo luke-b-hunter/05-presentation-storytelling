@@ -25,6 +25,10 @@
 
 * When I was making my flag, I tried to keep things clear and simple. Simplicity is key in the process of creating in graphic design. You want to make sure the stuff you make is understandable whether it's in a small or big format. The same rules you know from graphic design can be applied to flag design as well. The 5 rules of flag design are: Keep it simple. Use Meaningful Symbolism. Use 2 or 3 Basic Colors. No Lettering or Seals. Be Distinctive or Be Related. All these rules corelate with graphic and flag design. And so I started to use these rules in my graphic work. 
 
+***Flag redesign for the state of Mississippi***
+
+* In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. 
+
 ***Logo for a tourist region***
 
 * In 2019 I made a logo for a tourist ogranization called Kutnohorsko-Kolínsko-Čáslavsko. On the logo you can see three symbols representing the three small Czech cities that encompass the tourist region. Each symbol is a unique characterization of the city. Kolín is symbolized by a stylized crossroads standing for it's nickname, Kutná Hora is symbolized with a stylized axe standing for it’s famous silver mining in Medieval times and Čáslav is represented by a stylized historical gate symbolizing it's Medieval gate. All of these symbols could be used separately as it's own standing thing. And that's how I started to project my knowledge of symbolism into graphic design. 
