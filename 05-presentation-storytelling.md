@@ -23,11 +23,11 @@
 
 ***5 rules of flag design***
 
-* When I was making my flag, I tried to keep things clear and simple. Simplicity is key in the process of creating in graphic design. You want to make sure the stuff you make is understandable whether it's in a small or big format. The same rules you know from graphic design can be applied to flag design as well. The 5 rules of flag design are: Keep it simple. Use Meaningful Symbolism. Use 2 or 3 Basic Colors. No Lettering or Seals. Be Distinctive or Be Related. All these rules corelate with graphic and flag design. And so I started to use these rules in my graphic work. 
+* When I was making my flag, I tried to keep things clear and simple. Simplicity is key in the process of creating in graphic design. You want to make sure the stuff you make is understandable whether it's in a small or big format. The same rules you know from graphic design can be applied to flag design as well. The 5 rules of flag design are: Keep it simple. Use Meaningful Symbolism. Use 2 or 3 Basic Colors. No Lettering or Seals. Be Distinctive or Be Related. All these rules corelate with graphic and flag design. And so I started to use these rules in my graphic work as well. 
 
 ***Flag redesign for the state of Mississippi***
 
-* In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. 
+* Here is an example of one of my flag designs. It is a flag redesign for the state of Mississippi. In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. I decided to do my own take at a flag redesign. I tried to keep it as simple as possible while maintaing all the traditional colours of the previous state flag and adding a possible symbolic replacement for the Confederate battle flag. The lettering had to be added since one of the rules of the competition was to include the phrase "In god we trust" in our designs. 
 
 ***Logo for a tourist region***
 
@@ -39,7 +39,7 @@
 
 ***My bussines card***
 
-* There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you want to talk, just email me with my bussiness card. 
+* There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you ever want to talk, just email me with my bussiness card. 
 
 ***The End***
 
