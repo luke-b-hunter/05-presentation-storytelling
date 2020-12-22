@@ -19,6 +19,8 @@
 
 ***My personal flag***
 
+![](img/presentation-personal-flag.png)
+
 * Here is an example of my case study. The work is a personal flag that I created during my second semester at my graphic design school. The task was to create a unique selfie that would describe our personality so I created my own personal flag that’s hanging on a flag pole in the sky. The colours yellow and black represent optimism and pessimism. In the middle of the flag is a green eye representing the colours of my eyes. The two triangles represent the different views I take to seeing graphic design.The triangle on the left side is a simple triangle in blue which is my personal favourite colour. On the right side is a more complex triangle using different colours. The whole composition symbolizes how you can make creative ideas from simple things by visualising the idea through your own personal vision with your eyes and turn the idea into something new and unique.
 
 ***5 rules of flag design***
@@ -27,17 +29,25 @@
 
 ***Flag redesign for the state of Mississippi***
 
+![](img/presentation-flag.png)
+
 * Here is an example of one of my flag designs. It is a flag redesign for the state of Mississippi. In spite of 2020 political climate, the state of Mississippi decided to get a new design for their state through a public referendum replacing their old design with the confederate battle flag which to many symbolized years of slavery. I decided to do my own take at a flag redesign. I tried to keep it as simple as possible while maintaing all the traditional colours of the previous state flag and adding a possible symbolic replacement for the Confederate battle flag. The lettering had to be added since one of the rules of the competition was to include the phrase "In god we trust" in our designs. The symbol is made up of a stylized magnolia flower reffering to Mississippi's common nickname as the Magnolia state. The 20 stars represent Mississippi's status as the 20th state to join the Union. Around the symbol is a blue line representing the Mississippi river. 
 
 ***Logo for a tourist region***
+
+![](img/presentation-logo.png)
 
 * In 2019 I made a logo for a tourist ogranization called Kutnohorsko-Kolínsko-Čáslavsko. On the logo you can see three symbols representing the three small Czech cities that encompass the tourist region. Each symbol is a unique characterization of the city. Kolín is symbolized by a stylized crossroads standing for it's nickname, Kutná Hora is symbolized with a stylized axe standing for it’s famous silver mining in Medieval times and Čáslav is represented by a stylized historical gate symbolizing it's Medieval gate. All of these symbols could be used separately as it's own standing thing. And that's how I started to project my knowledge of symbolism into graphic design. 
 
 ***Poster for United Islands of Prague***
 
+![](img/presentation-poster.png)
+
 * Here is another example of using symbolism in graphic design. The symbolism in vexillology was projected in this poster I made in high school for United Islands of Prague. United Islands of Prague is a music festival, that takes place in Prague annually. On the poster, you can see a bridge inbetween two islands that symbolizes unity made with simple geometric forms. Most flag designs use simple geometric forms since they can be easily remembered and applied on anyhthing. The colours of the poster are made up of warm colours giving the poster a warm Summer feeling since the festival takes place in Summer. On the lower half of the poster you can see a stylized water with a ship in a geometric form as well. 
 
 ***My business card***
+
+![](img/presentation-business-card.png)
 
 * There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alphabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you ever want to talk, just email me with my bussiness card. 
 
