@@ -37,7 +37,7 @@
 
 * Here is another example of using symbolism in graphic design. The symbolism in vexillology was projected in this poster I made in high school for United Islands of Prague. United Islands of Prague is a music festival, that takes place in Prague annually. On the poster, you can see a bridge inbetween two islands that symbolizes unity made with simple geometric forms. Most flag designs use simple geometric forms since they can be easily remembered and applied on anyhthing. The colours of the poster are made up of warm colours giving the poster a warm Summer feeling since the festival takes place in Summer. On the lower half of the poster you can see a stylized water with a ship in a geometric form as well. 
 
-***My bussines card***
+***My business card***
 
 * There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you ever want to talk, just email me with my bussiness card. 
 
