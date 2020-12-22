@@ -39,7 +39,7 @@
 
 ***My business card***
 
-* There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alpahabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you ever want to talk, just email me with my bussiness card. 
+* There are many other unique versions of flags that you can use in your design. For example, each naval flag symbolizes a letter in the alphabet, therefore are used as a form of code to communicate with other ships. I decided to take those flags and incorporate them into my personal business card. The bussines card is made up of two layers. The white layer can be pulled out to reveal the letters that the naval flags symbolize. And this is what it's all about. It's about having fun with flags and their unique visual communication. With flags you can visualize your own story, your surroundings or yourself in a simple minimalist form. So remember, if you're having trouble, just use flags! And if you ever want to talk, just email me with my bussiness card. 
 
 ***The End***
 
